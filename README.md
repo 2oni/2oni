@@ -1,2 +1,4 @@
 ![](https://media.discordapp.net/attachments/1238393869217959979/1258350217946857545/static-assets-upload2918855179712649474.gif?ex=6687b976&is=668667f6&hm=5c8e95238adf6c78bc2056e7d34b661cdc706c97ed4b14b661d30fd0b69e13d6&)
 **PLEASE COME UP TO ME I DON'T BITE, IM TOO SHY TO GO UP TO PEOPLE MYSELF**
+
+https://youtu.be/Io6afYy0twA?si=09C0mfTOh44ZX7qo
