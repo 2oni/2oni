@@ -4,8 +4,6 @@
 ![](https://files.catbox.moe/xxfwfg.png)
 
 
-![](https://files.catbox.moe/08wk2j.png)
-
 
 
 
