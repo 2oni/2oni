@@ -2,16 +2,18 @@
 
 
 **PLEASE COME UP TO ME I DON'T BITE, IM TOO SHY TO GO UP TO PEOPLE MYSELF**!
-![](https://files.catbox.moe/fg68ie.webp)
+
+![Profile views](https://komarev.com/ghpvc/?username=2oni&color=ffcce6&style=for-the-badge&label=Profile+Views+🌸)
+
 ![](https://app.filemail.com/d/wexegojqckhmvya)
 
 
 
 ![](https://files.catbox.moe/f79sjq.png) 
+
 beautiful art by pookie taxicide and our yaoi sons
 (important mention)
 
-![Profile views](https://komarev.com/ghpvc/?username=2oni&color=ffcce6&style=for-the-badge&label=Profile+Views+🌸)
 
 <img src="https://files.catbox.moe/jbz2g5.gif" alt="Cute Pink GIF" width="600"/>
 
