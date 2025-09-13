@@ -8,5 +8,7 @@
 ![](https://files.catbox.moe/f79sjq.png) 
 beautiful art by pookie taxicide and our yaoi sons
 (important mention)
-![](https://komarev.com/ghpvc/?username=2oni&color=green)
+
+![Profile views](https://komarev.com/ghpvc/?username=2oni&color=ffcce6&style=for-the-badge&label=Profile+Views+🌸)
+
 ![](https://files.catbox.moe/lodjpt.png)
