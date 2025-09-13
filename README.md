@@ -11,4 +11,7 @@ beautiful art by pookie taxicide and our yaoi sons
 
 ![Profile views](https://komarev.com/ghpvc/?username=2oni&color=ffcce6&style=for-the-badge&label=Profile+Views+🌸)
 
+<img src="https://files.catbox.moe/jbz2g5.gif" alt="Cute Pink GIF" width="600"/>
+
+
 ![](https://files.catbox.moe/lodjpt.png)
