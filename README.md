@@ -10,11 +10,8 @@
 
 ![](https://files.catbox.moe/xxis36.gif)
 
-beautiful art by pookie taxicide and our yaoi sons
-(important mention)
 
 
-<img src="https://files.catbox.moe/jbz2g5.gif" alt="Cute Pink GIF" width="600"/>
 
 
 ![](https://files.catbox.moe/lodjpt.png)
